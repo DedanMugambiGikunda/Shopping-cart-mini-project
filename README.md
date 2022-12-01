@@ -1,8 +1,8 @@
 ## Profile
 1. git hub follow DedanMugambiGikunda.
-2. Facebook .
+2. Facebook Dedan Mg.
 3. Phone number 0708626855.
-4. Instagram Dedan Mugambir.
+4. Instagram Dedan Mugambi.
 
 ## Web objective
 1. Reduce monopolystic market.
